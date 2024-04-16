@@ -1,0 +1,1 @@
+# tema piatra hartie foarfeca
